@@ -1,2 +1,2 @@
-![image](<img width="401" alt="2022-12-19 (5)" src="https://github.com/riko161ny/ny/assets/169993916/d6004dfa-8141-48e8-8c99-497540ae6b31">
+![image](![PPW_utatanewosuruneko](https://github.com/riko161ny/ny/assets/169993916/6de9a711-aa6d-424b-b54f-f4cddb5b3d6a)
 )
